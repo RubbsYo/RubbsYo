@@ -1,4 +1,4 @@
-hi, i'm rubbs
+hi, i'm amelia
 =============
 i am not interesting, this is just for my website and whatever i can learn.
 
